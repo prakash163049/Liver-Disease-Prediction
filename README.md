@@ -317,11 +317,11 @@ This project helped in understanding:
 
 AI & Machine Learning Enthusiast
 
-📧 Email: your-email@example.com
+📧 Email: Prakashsarvaiya1609@gmail.com
 
-🔗 LinkedIn: https://linkedin.com/in/your-profile
+🔗 LinkedIn: https://www.linkedin.com/in/prakashsarvaiya1609/
 
-💻 GitHub: https://github.com/yourusername
+💻 GitHub: https://github.com/prakash163049
 
 ---
 
